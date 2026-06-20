@@ -232,8 +232,8 @@ I'm always excited to discuss:
 - 💼 Professional growth and opportunities
 
 **Reach Out:**
-- 📧 **Email:** [your-email@example.com](mailto:your-email@example.com)
-- 💼 **LinkedIn:** [linkedin.com/in/tharun-kumar](https://linkedin.com/in/tharun-kumar)
+- 📧 **Email:** [your-email@example.com](mailto:atptarun@gmail.com)
+- 💼 **LinkedIn:** [linkedin.com/in/tharun-kumar](https://www.linkedin.com/in/tharun0907/)
 - 🐦 **Twitter:** [@tharunkumar](https://twitter.com/tharunkumar)
 - 🌐 **Portfolio:** [your-portfolio.com](https://your-portfolio.com)
 
